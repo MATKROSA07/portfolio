@@ -10,7 +10,7 @@ I'm a software developer/data analyst based in Lucknow/India with a passion for 
 
 ### 💬 Let's Connect!
 - 📧 Email: [ayushmannbanerjee3108@gmail.com]
-- 🔗 LinkedIn: [LinkedIn Profile](www.linkedin.com/in/ayushman-banerjee-11742437b)
+- 🔗 LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/ayushman-banerjee-11742437b)
 
 ### 🎮 Fun Fact:
 When I’m not coding, you can find me playing strategy games or exploring new hiking trails!
